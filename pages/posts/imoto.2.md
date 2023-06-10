@@ -40,6 +40,6 @@ www.voidlord.com
 
 【提示】本站仅作下载载点跳转用，无其它用途。
 
-[【爱丽丝的记事本】](https://drive.noire.cc/s/M0X0uX?password=imoto) [【樱盘】](https://sakuradrive.com/s/GQmfA?password=imoto) [【蓝奏云】](https://qtqt.lanzoum.com/b018x70oj)
+[【爱丽丝的记事本】](https://drive.noire.cc/s/M0X0uX?password=imoto) [【樱盒】](https://sakuradrive.com/s/GQmfA?password=imoto) [【蓝奏云】](https://qtqt.lanzoum.com/b018x70oj)
 
 如有密码：imoto
