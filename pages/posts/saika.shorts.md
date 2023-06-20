@@ -13,7 +13,7 @@ tags:
 
 ## 国王的求婚 短篇合集
 
-![](https://lspgal.net/2023/06/20/d6d1065111492.png)
+![](https://ghproxy.com/https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/06/20/saika/cover.png)
 
 ---
 
@@ -33,6 +33,6 @@ ePub：qtqt_Eric_Chiu
 
 【提示】本站仅作下载载点跳转用，无其它用途。
 
-
+[【GitHub】](https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/06/20/saika/[ver.230620][橘公司]国王的求婚 短篇合集.epub) [【代理节点】](https://ghproxy.com/https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/06/20/saika/[ver.230620][橘公司]国王的求婚 短篇合集.epub) [【镜像站】](https://hub.nuaa.cf/qtqtEricChiu/LightSnacks/blob/master/pages/source/23/06/20/saika/[ver.230620][橘公司]国王的求婚 短篇合集.epub?raw=true)
 
 如有密码：saika
