@@ -11,8 +11,6 @@ tags:
  - 标.妹妹
 ---
 
-## 左右两边都是妹妹，哥哥想选的是谁？02
-
 ![](https://cdn-ching-win.fonlego.com//upload_files/fonlego-rwd/prodpic/D_40126202.jpg)
 
 「「怎么会发生这种命运的恶作剧──!!」」

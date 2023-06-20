@@ -13,10 +13,6 @@ tags:
 
 ![](https://www.ching-win.com.tw/upload_files/fonlego-rwd/website/%E5%B7%A6%E5%8F%B3%E5%85%A9%E9%82%8A%E9%83%BD%E6%98%AF%E5%A6%B9%E5%A6%B9%EF%BC%8C%E5%93%A5%E5%93%A5%E6%83%B3%E9%81%B8%E7%9A%84%E6%98%AF%E8%AA%B0%EF%BC%9F01-banner_950X408.jpg)
 
-check check 👀
-
-## 左右两边都是妹妹，哥哥想选的是谁？01
-
 ![](https://cdn-ching-win.fonlego.com//upload_files/fonlego-rwd/prodpic/D_40126201.jpg)
 
 「哥哥──」「哥──」「「你想选谁!?」」

@@ -12,8 +12,6 @@ tags:
 top: 1
 ---
 
-
-## 星美君的包装 vol.1 ~阴角也能变得可爱吗~
 ##### 星美くんのプロデュースvol.１　陰キャでも可愛くなれますか？
 
 ![](https://metac.nxtv.jp/img/bookimg/pubridge/00012/649/BT000126493400100101.jpg?output-format=webp&output-quality=80&resize=600:*)
