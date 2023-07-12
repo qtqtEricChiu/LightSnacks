@@ -2,7 +2,7 @@
 title: 悠木りん | 星美君的包装 vol.1 ~阴角也能变得可爱吗~
 date: 2022-12-19
 updated: 2023-06-13
-categories: 网翻
+categories: 日翻
 tags: 
  - 书.星美君的包装
  - 著.悠木りん

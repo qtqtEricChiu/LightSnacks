@@ -8,6 +8,7 @@ tags:
  - 著.こりんさん
  - 绘.kr木
  - 标.青梅竹马
+ - 标.恋爱
 ---
 
 ![](https://ghproxy.com/https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/07/12/shion/cover.jpg)
