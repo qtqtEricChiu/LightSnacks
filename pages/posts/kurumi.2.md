@@ -4,10 +4,11 @@ date: 2023-07-21
 updated: 2023-07-21
 categories: 日翻
 tags: 
- - 书.班上的原偶像，总之就是举止可疑。
+ - 书.试着向准备跳下去的同班同学提议「和我XX吧！」
  - 著.赤月ヤモリ
  - 绘.kr木
  - 标.恋爱
+ - 标.同级生
 ---
 
 ![](https://ghproxy.com/https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/07/21/kurumi/2/cover.jpg)
@@ -20,7 +21,7 @@ tags:
 
 翻校：happyH
 
-嵌字：落合葵
+嵌字：闲的无聊e书组
 
 ePub：qtqt_Eric_Chiu
 
