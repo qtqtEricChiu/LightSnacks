@@ -26,7 +26,7 @@ ePub：qtqt_Eric_Chiu
 
 ---
 
-![](https://ghproxy.com/https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/07/21/kurumi/2/jump.png)
+[![](https://ghproxy.com/https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/07/21/kurumi/2/jump.png)](https://lightsnacks.netlify.app/posts/kurumi.1)
 
 ---
 

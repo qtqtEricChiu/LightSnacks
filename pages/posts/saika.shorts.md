@@ -8,6 +8,7 @@ tags:
  - 著.橘公司
  - 绘.つなこ
  - 标.魔法
+top: 1
 ---
 
 ![](https://ghproxy.com/https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/06/20/saika/cover.png)
