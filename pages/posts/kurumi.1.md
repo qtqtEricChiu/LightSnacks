@@ -8,6 +8,7 @@ tags:
  - 著.赤月ヤモリ
  - 绘.kr木
  - 标.恋爱
+ - 标.同级生
 ---
 
 ![](https://ghproxy.com/https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/07/21/kurumi/1/cover.jpg)
