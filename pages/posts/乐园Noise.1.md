@@ -31,8 +31,8 @@ www.voidlord.com
 
 **简体中文**
 
-[【GitHub】](https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/Books/%5B%E6%9D%89%E4%BA%95+%E5%85%89%5D.%E4%B9%90%E5%9B%ADNOISE.01.epub) [【代理节点】](https://ghproxy.com/https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5B%E6%9D%89%E4%BA%95+%E5%85%89%5D.%E4%B9%90%E5%9B%ADNOISE.01.epub) [【镜像站】](https://hub.nuaa.cf/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5B%E6%9D%89%E4%BA%95+%E5%85%89%5D.%E4%B9%90%E5%9B%ADNOISE.01.epub)
+[【GitHub】](https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E4%B9%90%E5%9B%ADNOISE.01.epub) [【代理节点】](https://ghproxy.com/https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E4%B9%90%E5%9B%ADNOISE.01.epub) [【镜像站】](https://hub.nuaa.cf/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E4%B9%90%E5%9B%ADNOISE.01.epub)
 
 **繁体中文**
 
-[【GitHub】](https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95+%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub) [【代理节点】](https://ghproxy.com/https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95+%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub) [【镜像站】](https://hub.nuaa.cf/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95+%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub)
+[【GitHub】](https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub) [【代理节点】](https://ghproxy.com/https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub) [【镜像站】](https://hub.nuaa.cf/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epu)
