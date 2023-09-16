@@ -35,4 +35,4 @@ www.voidlord.com
 
 **繁体中文**
 
-[【GitHub】](https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub) [【代理节点】](https://ghproxy.com/https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub) [【镜像站】](https://hub.nuaa.cf/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epu)
+[【GitHub】](https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub) [【代理节点】](https://ghproxy.com/https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub) [【镜像站】](https://hub.nuaa.cf/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/Books/%5Bzht%5D%5B%E6%9D%89%E4%BA%95%20%E5%85%89%5D.%E6%A8%82%E5%9C%92NOISE.01.epub)
