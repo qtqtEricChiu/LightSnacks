@@ -11,7 +11,7 @@ tags:
  - 标.同级生
 ---
 
-![](https://cdn.shopifycdn.net/s/files/1/0613/7030/2681/files/01_2cb92b54-987e-4a21-aa69-f70fb9a35db6.jpg)
+![](https://qqq.gtimg.cn/music/photo_new/T053M00100057cDS13UOtg.jpg)
 
 一名少女在地铁差点遭到随机杀人魔袭击。
 
