@@ -11,7 +11,7 @@ tags:
 top: 1
 ---
 
-![](https://ghproxy.com/https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/06/20/saika/cover.png)
+![](https://qqq.gtimg.cn/music/photo_new/T053M001001irS7b0v6Vhy.png)
 
 ---
 
@@ -23,7 +23,7 @@ top: 1
 
 协力：雾雨の影灯、菠萝鼎、镜野七罪、达巴克、くるくるくるみん、贴吧@久远崎彩祸、\-、GD10168
 
-ePub：qtqt_Eric_Chiu
+ePub：Brona
 
 ---
 
@@ -31,6 +31,6 @@ ePub：qtqt_Eric_Chiu
 
 【提示】本站仅作下载载点跳转用，无其它用途。
 
-[【GitHub】](https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/23/06/20/saika/%5Bver.230620%5D%5B%E6%A9%98%E5%85%AC%E5%8F%B8%5D%E5%9B%BD%E7%8E%8B%E7%9A%84%E6%B1%82%E5%A9%9A%20%E7%9F%AD%E7%AF%87%E5%90%88%E9%9B%86.epub) [【代理节点】](https://ghproxy.com/https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/23/06/20/saika/%5Bver.230620%5D%5B%E6%A9%98%E5%85%AC%E5%8F%B8%5D%E5%9B%BD%E7%8E%8B%E7%9A%84%E6%B1%82%E5%A9%9A%20%E7%9F%AD%E7%AF%87%E5%90%88%E9%9B%86.epub) [【镜像站】](https://raw.nuaa.cf/qtqtEricChiu/LightSnacks/master/pages/source/23/06/20/saika/%5Bver.230620%5D%5B%E6%A9%98%E5%85%AC%E5%8F%B8%5D%E5%9B%BD%E7%8E%8B%E7%9A%84%E6%B1%82%E5%A9%9A%20%E7%9F%AD%E7%AF%87%E5%90%88%E9%9B%86.epub)
+[【GitHub】](https://raw.githubusercontent.com/qtqtEricChiu/LightSnacks/master/pages/source/24/01/29/saika/%5Bver.240129.compressed%5D%5B%E6%A9%98%E5%85%AC%E5%8F%B8%5D%E5%9B%BD%E7%8E%8B%E7%9A%84%E6%B1%82%E5%A9%9A+%E7%9F%AD%E7%AF%87%E5%90%88%E9%9B%86.epub) [【代理节点】](https://mirror.ghproxy.com/https://github.com/qtqtEricChiu/LightSnacks/raw/master/pages/source/24/01/29/saika/%5Bver.240129.compressed%5D%5B%E6%A9%98%E5%85%AC%E5%8F%B8%5D%E5%9B%BD%E7%8E%8B%E7%9A%84%E6%B1%82%E5%A9%9A+%E7%9F%AD%E7%AF%87%E5%90%88%E9%9B%86.epub) [【镜像站】](https://raw.nuaa.cf/qtqtEricChiu/LightSnacks/master/pages/source/24/01/29/saika/%5Bver.240129.compressed%5D%5B%E6%A9%98%E5%85%AC%E5%8F%B8%5D%E5%9B%BD%E7%8E%8B%E7%9A%84%E6%B1%82%E5%A9%9A+%E7%9F%AD%E7%AF%87%E5%90%88%E9%9B%86.epub)
 
 如有密码：saika
