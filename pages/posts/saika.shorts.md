@@ -1,7 +1,7 @@
 ---
 title: 橘公司 | 国王的求婚 短篇合集
 date: 2023-06-20
-updated: 2023-06-20
+updated: 2024-01-29
 categories: 日翻
 tags: 
  - 书.国王的求婚
